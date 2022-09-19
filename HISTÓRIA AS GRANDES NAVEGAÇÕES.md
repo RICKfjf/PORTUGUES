@@ -1,0 +1,1 @@
+Era dos descobrimentos (ou das Grandes Navegações) é a designação dada ao período da história que decorreu entre o século XV e o início do século XVII, durante o qual, inicialmente, portugueses, depois espanhóis e, posteriormente, alguns países europeus exploraram intensivamente o globo terrestre em busca de novas rotas de comércio.

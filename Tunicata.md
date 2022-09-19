@@ -1,0 +1,2 @@
+# OQUE É TUNICATA/UROCHORDATA?
+Os Urochordata (ou urocordados, do grego oura, cauda; do latim chorda, corda, + ata, caracterizado por), também conhecidos como Tunicata (tunicados), é um subfilo de animais marinhos, que pertencem ao filo Chordata. Seus membros não possuem espinha dorsal, mas uma notocorda em pelo menos alguma fase de suas vidas, sem falar que neste subfilo existe também um cordão nervoso oco dorsal, fendas branquiais e cauda pós-anal, características estas distinguíveis nos cordados.![[Sea-tulip.jpg]]

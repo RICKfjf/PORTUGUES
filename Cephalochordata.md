@@ -1,0 +1,2 @@
+# OQUE É CEPHALOCHORDATA?
+Cephalochordata é um dos subfilos do filo Chordata com mais ou menos 30 espécies. Cefalocordados são animais pequenos (centímetros de comprimento) finos, com corpo achatado lateralmente (como o corpo dos peixes), transparentes e vivem enterrados em substratos arenosos deixando apenas a cabeça aparente. São representados atualmente pelos anfioxos.![[anatomia-do-anfioxo.jpg]]
